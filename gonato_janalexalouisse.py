@@ -8,3 +8,6 @@ Welcome to the team Alexa -Gerald :p
       WElcome haha - gwen
        
 Welcome to the team - Chris
+
+Moshi moshi - lex
+
